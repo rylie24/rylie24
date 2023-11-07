@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @rylie24
+- 👀 I’m interested in anime, and coding.
+- 🌱 I’m currently learning in college.
